@@ -1,16 +1,17 @@
-### Hi there 👋
+### Tin tức Kubet
 
-<!--
-**tintuckubet/tintuckubet** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Tin tức Kubet giúp khách hàng không bỏ lỡ cá chương tình ưu đãi, khuyến mãi mới được nhà cái cung cấp Theo dõi tin tức kubet mỗi ngày nhé
 
-Here are some ideas to get you started:
+- Địa chỉ: 17/1 Tô Ngọc Vân, Tam Phú, Thủ Đức, Thành phố Hồ Chí Minh
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- SĐT: 0814714309
+
+- Website: https://kubet.coach/tin-tuc-kubet/
+
+https://www.pinterest.com/tintuckubet/
+
+https://www.youtube.com/channel/UCZcF5skS-aPPBkxKnW8tVDQ
+
+https://gravatar.com/tintuckubet
+
+https://www.tumblr.com/tintuckubet
